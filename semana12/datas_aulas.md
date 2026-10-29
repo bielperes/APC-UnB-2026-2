@@ -1,0 +1,1 @@
+Essa semana compreendeu as aulas dos dias 26 e 28/10/2026.
